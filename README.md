@@ -1,0 +1,2 @@
+# PalabraInapropiada
+*Racial slurs*
